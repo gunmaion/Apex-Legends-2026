@@ -106,5 +106,3 @@ Use at your own discretion.
 
 ### 🔍 SEO Keywords
 Apex Legends cheat, Apex Legends hack, Apex Legends aimbot, Apex Legends ESP, Apex Legends private cheat, Apex Legends undetected hack, Apex Legends radar.
-
-**This project is a fake cheat created for demonstration and layout purposes only.**
